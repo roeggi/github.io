@@ -13,5 +13,10 @@ Darüber hinaus hat er vier Golden Globes erhalten.
 * Cast Away - Verschollen (2000)
 * Greyhound - Schlacht im Atlantik (2020)
 
+Wie Tom Hanks in 'Forrest Gump' sagte:
+
+> Das Leben ist wie eine Schachtel Pralinen - 
+> man weiß nie, was man bekommt.
+
 
 

@@ -18,5 +18,7 @@ Wie Tom Hanks in 'Forrest Gump' sagte:
 > Das Leben ist wie eine Schachtel Pralinen - 
 > man weiß nie, was man bekommt.
 
+<img src="https://gutezitate.com/bilder/tom-hanks.jpg"/>
+
 
 
